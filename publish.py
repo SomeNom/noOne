@@ -104,6 +104,7 @@ TOGGLE_COLOR_SCHEME_JS = """
 RSS_LINK = """
 
 <link rel="alternate" type="application/rss+xml" href="{}/feed.xml" title="{}">
+<link rel="shortcut icon" href="images/noone_ico_grey.svg" />
 
 """
 

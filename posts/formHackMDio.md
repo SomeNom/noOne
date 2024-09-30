@@ -6,7 +6,7 @@
 ---
 
 Это тестовый пост 
-[img](https://bafkreib63ufbh6mksgohdw77xqjjqk3dnm5wwm7nvcoskyvsihbnpkg3ry.ipfs.flk-ipfs.xyz)
+[img](/images/Angkor_1.jpg)
 
 > цитато
 1. список

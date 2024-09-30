@@ -1,12 +1,12 @@
 <?xml version="1.0" ?>
 <rss version="2.0">
 <channel>
-  <title>Vitalik Buterin's website</title>
+  <title>NoOne's website</title>
   <link>http://localhost/</link>
-  <description>Vitalik Buterin's website</description>
+  <description>NoOne's website</description>
   <image>
-      <url>http://vitalik.ca/images/icon.png</url>
-      <title>Vitalik Buterin's website</title>
+      <url>https://bafkreignotue4iojijcbgghwj3gakmy7uiexgbdmxy3ihna5pbnuvxl6na.ipfs.flk-ipfs.xyz</url>
+      <title>NoOne's website</title>
       <link>http://localhost/</link>
   </image>
 

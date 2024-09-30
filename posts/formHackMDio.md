@@ -23,3 +23,5 @@ title: Это тестовый пост
 | Column 1 | Column 2 | Column 3 |
 | -------- | -------- | -------- |
 | Text     | Text     | Text     |
+
+![craiyon_161452_mountain](https://hackmd.io/_uploads/ry8bxY_RA.png)

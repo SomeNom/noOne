@@ -1,9 +1,7 @@
 [category]: <> (Test)
 [date]: <> (2020/10/24)
 [title]: <> (From HackMD.io)
----
 
----
 
 Это тестовый пост 
 [img](/images/Angkor_1.jpg)

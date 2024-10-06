@@ -20,7 +20,7 @@
 
 ![Комната](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-4.jpeg)
 
-![Душелет на двоих с мальчиком-айтишником (у хозяина свой)](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-7.jpeg)
+![Душелет на двоих с мальчиком-айтишником (у хозяина свой)](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-7.jpg)
 
 ![Общий спейс/гостинная/кухня](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-5.jpeg)
 
@@ -30,7 +30,7 @@
 
 Из общественного транспорта вот только электричка, на которой ехать до метро, правда, всего две станции, но немного надо подстраиваться под расписание (поезд ходит раз в час):
 
-![Аэроэкспресс Домодедово немного завидует](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-2.jpeg)
+![Аэроэкспресс Домодедово немного завидует](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-2.jpg)
 
 В общем, мне кажется вполне годное предложение: на сайте стояло 850rm, хозяин сказал 900rm конечная вместе с электричеством, интернетом и остальным.
 

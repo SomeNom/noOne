@@ -37,4 +37,4 @@ ___Текст жирным курсивом___
 
 ![Изображение](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Markdown-mark.svg/1920px-Markdown-mark.svg.png "Логотип Markdown")
 
-![Изображение](https://mega.nz/file/8jlFxCQQ#k9DpggnQtLhm7OznuPVyEpXV5LNCxbOE_Nyasm69_Nk "Turkey")
+![:Angkor:](https://bafkreib63ufbh6mksgohdw77xqjjqk3dnm5wwm7nvcoskyvsihbnpkg3ry.ipfs.flk-ipfs.xyz/)

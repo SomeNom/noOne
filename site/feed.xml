@@ -11,15 +11,6 @@
   </image>
 
 <item>
-<title>Hello Vasya</title>
-<link>http://localhost/./posts/2024/10/24/newafterdeploy.html</link>
-<guid>http://localhost/./posts/2024/10/24/newafterdeploy.html</guid>
-<pubDate>Thu, 24 Oct 2024 00:00:00 +0000</pubDate>
-<description></description>
-</item>
-
-
-<item>
 <title>Learn MarkDown</title>
 <link>http://localhost/./posts/2024/10/05/Sabiha.html</link>
 <guid>http://localhost/./posts/2024/10/05/Sabiha.html</guid>
@@ -29,45 +20,9 @@
 
 
 <item>
-<title>Hello not world</title>
-<link>http://localhost/./posts/2021/11/04/maxtest.html</link>
-<guid>http://localhost/./posts/2021/11/04/maxtest.html</guid>
-<pubDate>Thu, 04 Nov 2021 00:00:00 +0000</pubDate>
-<description></description>
-</item>
-
-
-<item>
-<title>From HackMD.io</title>
-<link>http://localhost/./posts/2020/10/24/formHackMDio.html</link>
-<guid>http://localhost/./posts/2020/10/24/formHackMDio.html</guid>
-<pubDate>Sat, 24 Oct 2020 00:00:00 +0000</pubDate>
-<description></description>
-</item>
-
-
-<item>
 <title>Hello world</title>
 <link>http://localhost/./posts/2020/10/24/hello.html</link>
 <guid>http://localhost/./posts/2020/10/24/hello.html</guid>
-<pubDate>Sat, 24 Oct 2020 00:00:00 +0000</pubDate>
-<description></description>
-</item>
-
-
-<item>
-<title>Hello Hell</title>
-<link>http://localhost/./posts/2020/10/24/test1.html</link>
-<guid>http://localhost/./posts/2020/10/24/test1.html</guid>
-<pubDate>Sat, 24 Oct 2020 00:00:00 +0000</pubDate>
-<description></description>
-</item>
-
-
-<item>
-<title>Hello world</title>
-<link>http://localhost/./posts/2020/10/24/test.html</link>
-<guid>http://localhost/./posts/2020/10/24/test.html</guid>
 <pubDate>Sat, 24 Oct 2020 00:00:00 +0000</pubDate>
 <description></description>
 </item>

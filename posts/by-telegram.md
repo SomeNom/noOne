@@ -8,9 +8,6 @@
 Альтернативно посмотрела еще **Jami** - тоже годный меседжер, тоже кросс-платформ, но поменьше настроек, чем у элемента. Насчет блока в России - не знаю, нет никого в нем оттуда
 
 Оставлю ссылки на оба месседжера тут, кто за минимализм и анонимность - маст велкам:<br>
-[![](https://bafybeiccouvjm56fbkp27gumymymaipdhbeycwlvczsvta5geurvqixjae.ipfs.flk-ipfs.xyz/element-logo-100.jpg)](https://element.io/download)
-[![](https://bafybeiccouvjm56fbkp27gumymymaipdhbeycwlvczsvta5geurvqixjae.ipfs.flk-ipfs.xyz/jami-logo-100.jpg)](https://jami.net/)
-
 [![](/images/by-telegram/element-logo-100.jpg)](https://element.io/download "Element.io")
 [![](/images/by-telegram/jami-logo-100.jpg)](https://jami.net/ "Jami.net")
 

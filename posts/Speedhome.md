@@ -1,4 +1,4 @@
-[category]: <> (Travel)
+[category]: <> (Travel, Malaysia)
 [date]: <> (2024/03/07)
 [title]: <> (SpeedHome или как я в Куала-Лумпуре жилье снимала)
 

@@ -6,20 +6,20 @@
 
 В Малайзии дофига типов разных виз и пассов, так что зря я завидовала беларусам, которым ставят штамп на 90 дней просто за национальность - всем остальным при совершении несложных движений можно тоже проторчать тут немало дней. Есть всякие digital nomad визы (однакож их обладатели недавно обнаружили, что с них хотят жирный налог и многие сейчас активно пакуют чемоданы). Есть специальные стартап-визы, инвесторские и ещё много всего. И есть вот такая штука: Social visit pass. Long и short. Долгий - для супругов малайцев только, как я поняла, и короткий - для всего остального:
 
->Social visit
-Visiting relatives
-Tourism
-Journalism / Reporting
-Meeting / Conference
-Business Discussion
-Factory Inspection
-Auditing Company Accounts
-Signing Agreement
-Carrying out a survey on investment opportunities/setting up factory
-Attending Seminars
-Students on goodwill missions or taking examinations at a university
-Taking part in sports competitions
-Other activities approved by the Director General of Immigration.
+>Social visit  
+Visiting relatives   
+Tourism   
+Journalism / Reporting  
+Meeting / Conference  
+Business Discussion  
+Factory Inspection   
+Auditing Company Accounts   
+Signing Agreement   
+Carrying out a survey on investment opportunities/setting up factory  
+Attending Seminars  
+Students on goodwill missions or taking examinations at a university  
+Taking part in sports competitions  
+Other activities approved by the Director General of Immigration  
 
 Официальный сайт Malaysian Immigration, открытый уже на нужной странице: [www.imi.gov.my](https://www.imi.gov.my/index.php/en/main-services/pass/visitor-pass/social-visit-pass/short-term-social-visit-pass/)
 
@@ -37,23 +37,23 @@ Other activities approved by the Director General of Immigration.
 
 ![](/images/Social-visit-pass/consulate-working.jpeg)
 
-##Список доков:
+## Список доков:
 
-*Паспорт + ксерокопия (первая страница и штамп о въезде в Тайланд)
-*Фотография (говорили, что надо на синем фоне, по факту взяли какую-то обычную на белом, достатую из закромов)
-*Билеты в/из Малайзии (обратный через 2 месяца). Не знаю можно ли автобусный, я делала на самолёт
-*Выписка из банка (говорят из расчета 40$ в день)
-*Письмо-приглашение от резидента Малайзии (не обязательно гражданина, у меня было от товарища с IMM13-визой). Шаблон
-*Копия паспорта и визы приглащающего
-*200 бат
-*В консульстве дадут ещё простую форму, которую надо заполнить
+* Паспорт + ксерокопия (первая страница и штамп о въезде в Тайланд)
+* Фотография (говорили, что надо на синем фоне, по факту взяли какую-то обычную на белом, достатую из закромов)
+* Билеты в/из Малайзии (обратный через 2 месяца). Не знаю можно ли автобусный, я делала на самолёт
+* Выписка из банка (говорят из расчета 40$ в день)
+* Письмо-приглашение от резидента Малайзии (не обязательно гражданина, у меня было от товарища с IMM13-визой). Шаблон
+* Копия паспорта и визы приглащающего
+* 200 бат
+* В консульстве дадут ещё простую форму, которую надо заполнить
 
 Делается по факту один рабочий день. Я подалась в пятницу, получила в понедельник после обеда.
 
-![]{/images/Social-visit-pass/my-visa.jpeg}
+![](/images/Social-visit-pass/my-visa.jpeg)
 
 Был ещё вопрос, можно ли по ней заехать по земле - офицер, выдававший визу сказал, что без проблем. Оказалось - не совсем. Во-первых, у офицера, обычного, не оказалось нужного штампа и он отправил меня "куда-то туда" к маленькому домику. Домик оказался крайним левым окошком на пропуск транспорта. Там сидела какая-то климаксоидальная тетя, которую аж перекосило, когда я сказала, что еду к бой-френду. И, тётя над штампом ручкой написала, что он last. И на словах сказала, что это послелние два месяца, а потом - валите:
 
-![]{/images/Social-visit-pass/stamp-last.jpeg}
+![](/images/Social-visit-pass/stamp-last.jpeg)
 
 Ну в общем, зная любовь малайцев приписать что-нибудь к штампу, всерьёз я это пока не воспринимаю, но возможно с продлением (емли оно, конечно понадобится) могут возникнуть некие траблы

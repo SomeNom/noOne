@@ -10,27 +10,27 @@
 
 Списались с дядькой в ватсаппе и я подъехала к нему вечером около 9pm. Так как с работы мне возвращаться после 10 вечера - то лучше заранее глянуть ночью, как оно там. Нормально.
 
-![Фото дома с платформы KTMB](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-3.jpeg)
+![Фото дома с платформы KTMB](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-01.jpeg)
 
-![Фото из окна гостинной, 30й этаж](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-1.jpeg)
+![Фото из окна гостинной, 30й этаж](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-02.jpeg)
 
 > Выглядит так, как будто она слегка в жопе © 
 
 И в итоге с ним же обо всё договорились: что плачу я ему напрямую, что виза у меня на 2 месяца, а дальше - хз, продлят/не продлят. В квартире 3 комнаты: в мастер-бедрум живет он сам, а две маленькие сдаёт. В одной живет мальчик-малаец-айтишник-аудитор, вторая по итогу стала моей:
 
-![Комната](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-4.jpeg)
+![Комната](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-03.jpeg)
 
-![Душелет на двоих с мальчиком-айтишником (у хозяина свой)](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-7.jpg)
+![Душелет на двоих с мальчиком-айтишником (у хозяина свой)](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-04.jpg)
 
-![Общий спейс/гостинная/кухня](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-5.jpeg)
+![Общий спейс/гостинная/кухня](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-05.jpeg)
 
-![Тот же вид на парк/мечеть/кладбище из окна гостинной днём](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-6.jpeg)
+![Тот же вид на парк/мечеть/кладбище из окна гостинной днём](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-06.jpeg)
 
 На 8м этаже в комплексе ещё бассейн и тренажёрка, так и не дошла туда с телефоном сделать фото
 
 Из общественного транспорта вот только электричка, на которой ехать до метро, правда, всего две станции, но немного надо подстраиваться под расписание (поезд ходит раз в час):
 
-![Аэроэкспресс Домодедово немного завидует](https://bafybeiaqvli4xrhjpds4ereiletubivfkc24vq5zvqjmh44fq4277du32y.ipfs.flk-ipfs.xyz/SpeedHome-2.jpg)
+![Аэроэкспресс Домодедово немного завидует](https://bafybeickmy2pzgrw5vbfsdffcrfm43irqpg6sl6qyinxp5ge6g4kx7b3r4.ipfs.flk-ipfs.xyz/SpeedHome-07.jpg)
 
 В общем, мне кажется вполне годное предложение: на сайте стояло 850rm, хозяин сказал 900rm конечная вместе с электричеством, интернетом и остальным.
 

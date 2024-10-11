@@ -12,8 +12,8 @@
 
 Оставляю ссылки на оба месседжера, кто за минимализм и анонимность - маст велкам:
 
-[![](https://bafybeihd5ns3lom6il54nga4ew4hmxcskmt37qotnhsjecfafdhib7cld4.ipfs.flk-ipfs.xyz/01/01/element-logo-100.jpg)](https://element.io/download "Element.io")
-[![](https://bafybeihd5ns3lom6il54nga4ew4hmxcskmt37qotnhsjecfafdhib7cld4.ipfs.flk-ipfs.xyz/01/01/jami-logo-100.jpg)](https://jami.net/ "Jami.net")
+[![](https://bafybeiddh754gyen4w2jptzkp43cnjacx3zkm7fiucngy5rtezys2tng6q.ipfs.flk-ipfs.xyz/element-logo-100.jpg)](https://element.io/download "Element.io")
+[![](https://bafybeiddh754gyen4w2jptzkp43cnjacx3zkm7fiucngy5rtezys2tng6q.ipfs.flk-ipfs.xyz/jami-logo-100.jpg)](https://jami.net/ "Jami.net")
 
 ***
 

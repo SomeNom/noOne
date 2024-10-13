@@ -8,13 +8,13 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/1.jpeg)
 
-К вечеру автобус привёз наших бойцов в Бени и нижней дорогой они пошли искать стоянку. Она обнаружилась через пару километров на полях:
+К вечеру автобус привёз наших бойцов в Бени и нижней дорогой они пошли искать стоянку. Она обнаружилась через пару километров на полях (28.33702, 83.539987):
 
-![28.33702, 83.539987](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/2.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/2.jpeg)
 
 Всё бы хорошо, если бы Балбес и Бывалый не решили, что газ нужно беречь, а ужин готовить на костре. В процессе разведения костра большая часть поля оказалась выжжена, Балбес же бегал за водой из реки для тушения пожара:
 
-![Горшочек вари!](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/3.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/3.jpeg)
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/4.jpeg)
 
@@ -26,25 +26,29 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/6.jpeg)
 
-!["Мужчина, вас здесь не стояло!"](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/7.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/7.jpeg)
+
+> Мужчина, вас здесь не стояло!
 
 Искупавшись в оздоровительных водах, отправились дальше, где пешком а где автобусом, и к вечеру почти добрались до начала пешеходной тропы. 
 
-Начавший накрапывать дождик, загнал нас на ночь в грот на реке. Балбес решил, что лучше быть мокрым, но живым. Трус с Бывалым, понадеявшись на карму, поставили палатку внутри осыпающегося грота, решив, что сегодня не подходящий день, чтобы промокнуть:
+Начавший накрапывать дождик, загнал нас на ночь в грот на реке. Балбес решил, что лучше быть мокрым, но живым. Трус с Бывалым, понадеявшись на карму, поставили палатку внутри осыпающегося грота, решив, что сегодня не подходящий день, чтобы промокнуть (28.43997, 83.385072):
 
-![28.43997, 83.385072](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/8.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/8.jpeg)
 
 ### День 3
 
 Первый полноценно-пешеходный день. Трус осознает, что со страху набрал с собой слишком много вещей, но не может расстаться ни с кофеварочкой, ни с аптечкой размером с косметичку болливудской актрисы, ни с пижамой. Через Кибанг-пасс идём в Науру.
 
-![Трус и Балбес](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/9.jpeg)
+Трус и Балбес:
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/9.jpeg)
 
 ### День 4
 
 Несмотря на большое количество съестного, мужиков начинает преследовать призрак голода. Вначале кофе с печеньками, потом завтрак овсянкой, потом омлетик по пути... 
 
-![Путь](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/10.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/10.jpeg)
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/11.jpeg)
 
@@ -56,13 +60,19 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/14.jpeg)
 
+Это холодные источники:
+
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/15.jpeg)
 
-![холодные источники](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/16.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/16.jpeg)
 
-![горячие источники](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/17.jpeg)
+А это - горячие:
 
-![28.582197, 83.388346](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/18.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/17.jpeg)
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/18.jpeg)
+
+Координаты: 28.582197, 83.388346
 
 ### День 5
 
@@ -70,20 +80,22 @@
 
 Вообще источники дышат на ладан: фундамент домиков "поехал", крыша в двух последних комнатах пробита камнепадом. Всё выглядит так, что при малейшем толчке или оползне - это будет последнее купание.
 
-![Бывалый начинает подозревать во что он вляпался...](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/19.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/19.jpeg)
+
+Бывалый начинает подозревать во что он вляпался...
 
 ### День 6
 
 Снимаемся с источников. Балбес полон энтузиазма. Изначально он хотел дойти только до хотспрингов, но теперь ему кажется, что возможно всё и никакие дырявые кроссовки не смогут помешать пробежать два пятитысячных перевала. 
 После обеда по энтузиазму начинает барабанить дождь, выше перетекающий в мокрый снег. Тут Трус наконец-то вытаскивает свою аптечку, что-то незаметно употребляет из неё и... включает четвертую передачу. Если Балбес ещё как-то успевает его нагонять, то Бывалый в удивлении ползёт сзади. 
 
-В итоге к вечеру мы выходим к кхарке, уже окупированной непальскими портерами. Но те потеснились и мы ночевали все вместе
+В итоге к вечеру мы выходим к кхарке, уже окупированной непальскими портерами. Но те потеснились и мы ночевали все вместе (28.652853, 83.411688)
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/20.jpeg)
 
-![28.652853, 83.411688](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/21.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/21.jpeg)
 
-![толи закат, толи рассвет](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/22.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/22.jpeg)
 
 ### День 7
 
@@ -91,21 +103,27 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/23.jpeg)
 
-![Новые непальские друзья тоже идут в Италиан-кемп](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/24.jpeg)
+Новые непальские друзья тоже идут в Италиан-кемп:
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/24.jpeg)
 
 Наконец, к обеду Трус, Балбес и Бывалый доходят до итальянского лагеря. 
 
-    Дальше дороги нет - лендслайд
+> Дальше дороги нет - лендслайд,
 
-говорят местные непальские мужики. Но затем добавляют, что можно его обойти через левую сторону. Тут Балбес проявляет чудеса сообразительности, понимания, что лайтовая прогулка может быстро превратится в хард-трип и... исчезает. Мужики же подводят Бывалого и Труса к обрыву, хорошо присыпанному снегом и говорят:
+\- говорят местные непальские мужики. Но затем добавляют, что можно его обойти через левую сторону. Тут Балбес проявляет чудеса сообразительности, понимания, что лайтовая прогулка может быстро превратится в хард-трип и... исчезает. Мужики же подводят Бывалого и Труса к обрыву, хорошо присыпанному снегом и говорят:
 
-    Здесь вчера мужик на лошади проехал. Точно здесь. Мы видели. Можете спускаться, а мы пошли домой.
+> Здесь вчера мужик на лошади проехал. Точно здесь. Мы видели. Можете спускаться, а мы пошли домой.
 
-Мазафака... Минут за 40 сползли на морену, иногда подстраховываясь веревкой...  Наверх поднятся сил уже не было, поставили палатку прямо там 
+Мазафака... Минут за 40 сползли на морену, иногда подстраховываясь веревкой...  Наверх поднятся сил уже не было, поставили палатку прямо там. 
 
-![Italian base camp](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/25.jpeg)
+Italian base camp:
 
-![28.69772, 83.440558](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/26.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/25.jpeg)
+
+Стоянка (28.69772, 83.440558):
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/26.jpeg)
 
 ### День 8
 
@@ -131,15 +149,15 @@
 
 ### День 10
 
-После обеда дошли до базового лагеря. Точнее до места, которое так обозначено на карте. Ну да, плоское. Ну, да, - есть ручейки под льдом - можно добыть воду. На том какие-либо признаки места под лагерь заканчиваются. Примерно за час до лагеря проходили остов разбитого вертолёта.
+После обеда дошли до базового лагеря. Точнее до места, которое так обозначено на карте. Ну да, плоское. Ну, да, - есть ручейки под льдом - можно добыть воду. На том какие-либо признаки места под лагерь заканчиваются. Примерно за час до лагеря проходили остов разбитого вертолёта (28.748573, 83.484563).
 
-![28.748573, 83.484563](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/34.jpeg)
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/34.jpeg)
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/35.jpeg)
 
 ### День 11
 
-Приближаемся к Френч-пассу, но всё же немного не доходим до него, блин. Потому что надо то под ледником пролезть, чтоб он на голову не свалился, то по сыпухе проползти и не свалится самому :) В итоге обнаруживаем себя часам к 4-5 вечера голодными и злыми и откладываем пасс на завтра
+Приближаемся к Френч-пассу, но всё же немного не доходим до него, блин. Потому что надо то под ледником пролезть, чтоб он на голову не свалился, то по сыпухе проползти и не свалится самому. В итоге обнаруживаем себя часам к 4-5 вечера голодными и злыми и откладываем пасс на завтра
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/36.jpeg)
 
@@ -183,7 +201,9 @@
 
 ### День 15
 
-![Утро](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/46.jpeg)
+Утро:
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/46.jpeg)
 
 Облака сжалились над нами и показали, что всё же проход был изначально там, где показывали карты... просто на 100 метров ниже. Спустились-поднялись. Дальше старались придерживаться тропы, но организм  при первой возможности стремился вниз. Получалась вот такая картина:
 
@@ -197,7 +217,9 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/49.jpeg)
 
-![вид на Нилгири с АлуБари](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/50.jpeg)
+Вид на Нилгири с АлуБари:
+
+![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/50.jpeg)
 
 ### День 16 и остальные дни
 

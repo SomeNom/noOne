@@ -96,3 +96,8 @@
 
 Картинки
     ![Изображение](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Markdown-mark.svg/1920px-Markdown-mark.svg.png "Логотип Markdown")
+
+    ![](https:// "")
+
+Ссылка с картинкой:
+    [![Jami](https://bafybeiddh754gyen4w2jptzkp43cnjacx3zkm7fiucngy5rtezys2tng6q.ipfs.flk-ipfs.xyz/jami-logo-100.jpg)](https://jami.net/ "Jami.net")

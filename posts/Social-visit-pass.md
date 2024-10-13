@@ -33,11 +33,11 @@ Other activities approved by the Director General of Immigration
 
 Сонгхла очень такой приятный городок, с минимумом траффика, широкими дорогами и кучей госучереждений. Я жила тут: [5/15 Guesthouse](https://maps.app.goo.gl/z8pYePZACzvzmrbq6), за 300 бат. Но вообще там рядом много гестиков ± в одинаковом ценовом диапазоне.
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/5-15-gh.jpeg "5/15 GuestHouse")
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/1.jpeg)
 
 Консульство работает с 8:30 до 15:30, но подача документов до 12:00 (забирать после обеда):
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/consulate-working.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/2.jpeg)
 
 ## Список доков:
 
@@ -45,18 +45,18 @@ Other activities approved by the Director General of Immigration
 * Фотография (говорили, что надо на синем фоне, по факту взяли какую-то обычную на белом, достатую из закромов)
 * Билеты в/из Малайзии (обратный через 2 месяца). Не знаю можно ли автобусный, я делала на самолёт
 * Выписка из банка (говорят из расчета 40$ в день)
-* Письмо-приглашение от резидента Малайзии (не обязательно гражданина, у меня было от товарища с IMM13-визой). [Шаблон](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Template%20IL.docx)
+* Письмо-приглашение от резидента Малайзии (не обязательно гражданина, у меня было от товарища с IMM13-визой). [Шаблон](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/Template%20IL.docx)
 * Копия паспорта и визы приглащающего
 * 200 бат
 * В консульстве дадут ещё простую форму, которую надо заполнить
 
 Делается по факту один рабочий день. Я подалась в пятницу, получила в понедельник после обеда.
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/my-visa.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/3.jpeg)
 
 Был ещё вопрос, можно ли по ней заехать по земле - офицер, выдававший визу сказал, что без проблем. Оказалось - не совсем. Во-первых, у офицера, обычного, не оказалось нужного штампа и он отправил меня "куда-то туда" к маленькому домику. Домик оказался крайним левым окошком на пропуск транспорта. Там сидела какая-то климаксоидальная тетя, которую аж перекосило, когда я сказала, что еду к бой-френду. И, тётя над штампом ручкой написала, что он last. И на словах сказала, что это последние два месяца, а потом - валите:
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/stamp-last.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/4.jpeg)
 
 Ну в общем, зная любовь малайцев приписать что-нибудь к штампу, всерьёз я это пока не воспринимаю, но возможно с продлением (если оно, конечно понадобится) могут возникнуть некие траблы
 
@@ -64,19 +64,19 @@ Other activities approved by the Director General of Immigration
 
 Несколько фоточек Сонгхлы:
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Songhla-01.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/5.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Songhla-02.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/6.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Songhla-03.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/7.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Songhla-04.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/8.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Songhla-05.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/9.jpeg)
 
 А на въезде в Малайзию меня встретил вот такой подмигивающий кот:
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/cat.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/10.jpeg)
 
 ***
 
@@ -88,7 +88,7 @@ Other activities approved by the Director General of Immigration
 
 В моем случае - я посмотела, что ближайшая доступная через два месяца и просто приехала. Сказали букать всё равно, распечатать и на распечатке уже поставили штамп с новой датой (через неделю). Видела на сайте кнопку reschedule, так что возможно ехать не надо - можно переназначить самому.
 
-![Штамп ре-аппоинтмента](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/appointment-reshedule.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/11.jpeg)
 
 ### Куда ехать?
 
@@ -96,7 +96,7 @@ Other activities approved by the Director General of Immigration
 
 **Visa pass dan Permit services** на третьем этаже:
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Visa-services.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/12.jpeg)
 
 ### Документы:
 
@@ -116,20 +116,22 @@ Other activities approved by the Director General of Immigration
 
 Ещё минут через 40-50 вызвали третий раз - выдали паспорт со вклейкой на два месяца во всю страницу. У кого-то там была приписка no further extension allowed. В моём случае было: employment prohibited. Мне кажется они что-то подозревают...
 
-![Стикер продления, выглядит намного приличнее, чем сама виза](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/exstension.jpeg)
+Стикер продления, выглядит намного приличнее, чем сама виза:
+
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/13.jpeg)
 
 ***
 
 Путраджая (которая и есть настоящая столица Малайзии) выглядит монументально. Огромные здания, широчезные тротуары. Похоже на наши "сталинки", если бы они строились в 21м веке, с добавлением много-стекла и хайтека:
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-1.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/14.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-2.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/15.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-3.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/16.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-4.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/17.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-5.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/18.jpeg)
 
-![](https://bafybeia3wbhvww46ppry2i2m3j7kjlgjmrpucwouxpouekpy3gv7hgjol4.ipfs.flk-ipfs.xyz/Putrajaya-6.jpeg)
+![](https://bafybeiecwf4gv3hndpfg47rwzf5kwgbd6oj35vqj5otbxvfqyfgx4t3kf4.ipfs.flk-ipfs.xyz/19.jpeg)

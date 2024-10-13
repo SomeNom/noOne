@@ -12,35 +12,35 @@
 
 Фото дома с платформы KTMB:
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-01.jpeg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/1.jpeg)
 
 Фото из окна гостинной, 30й этаж:
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-02.jpeg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/2.jpeg)
 
 > Выглядит так, как будто она слегка в жопе © 
 
 И в итоге с ним же обо всё договорились: что плачу я ему напрямую, что виза у меня на 2 месяца, а дальше - хз, продлят/не продлят. В квартире 3 комнаты: в мастер-бедрум живет он сам, а две маленькие сдаёт. В одной живет мальчик-малаец-айтишник-аудитор, вторая по итогу стала моей:
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-03.jpeg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/3.jpeg)
 
 Душелет на двоих с мальчиком-айтишником (у хозяина свой):
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-04.jpg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/4.jpg)
 
 Общий спейс/гостинная/кухня:
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-05.jpeg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/5.jpeg)
 
 Тот же вид на парк/мечеть/кладбище из окна гостинной днём:
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-06.jpeg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/6.jpeg)
 
 На 8м этаже в комплексе ещё бассейн и тренажёрка, так и не дошла туда с телефоном сделать фото
 
 Из общественного транспорта вот только электричка, на которой ехать до метро, правда, всего две станции, но немного надо подстраиваться под расписание (поезд ходит раз в час):
 
-![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/SpeedHome-07.jpg)
+![](https://bafybeibwa3l644xlb556e57cge2mz5omjvvykjntbwti4namagv6zf24d4.ipfs.flk-ipfs.xyz/7.jpg)
 
 В общем, мне кажется вполне годное предложение: на сайте стояло 850rm, хозяин сказал 900rm конечная вместе с электричеством, интернетом и остальным.
 

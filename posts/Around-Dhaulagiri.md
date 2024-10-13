@@ -60,7 +60,7 @@
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/14.jpeg)
 
-Это холодные источники:
+Это - холодные:
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/15.jpeg)
 
@@ -221,7 +221,7 @@ Italian base camp:
 
 ![](https://bafybeihuvbcbyjkhfflsg2gaqfi64rjxlgtlh4mihc26rvkzlzzrxyikhy.ipfs.flk-ipfs.xyz/50.jpeg)
 
-### День 16 и остальные дни
+### День 16 и остальные дни...
 
 Потом была Марфа, горячий душ, далбат, байкеры из восточного Непала, Мухтинатх и чуть-чуть аппер-Мустанга, Лупра и автостоп в кузове Тайоты, которая провезла нас через чек-посты и, наконец, спустя десять дней - родная Покхара, курица в яблоках и Новый 2078 год!
 

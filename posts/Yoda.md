@@ -30,6 +30,11 @@
 
 [Видосик от Рэма](https://www.youtube.com/watch?v=payKFC9hyNU), там кота чуть-чуть в самом начале
 
+<iframe
+  title="Видосик от Рэма, там кота чуть-чуть в самом начале"
+  src="https://www.youtube.com/watch?v=payKFC9hyNU">
+</iframe>
+
 ***
 
 Я в Непале так-то живу подолгу, но не постоянно.

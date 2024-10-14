@@ -30,11 +30,6 @@
 
 [Видосик от Рэма](https://www.youtube.com/watch?v=payKFC9hyNU), там кота чуть-чуть в самом начале
 
-<iframe
-  title="Видосик от Рэма, там кота чуть-чуть в самом начале"
-  src="https://www.youtube.com/watch?v=payKFC9hyNU">
-</iframe>
-
 ***
 
 Я в Непале так-то живу подолгу, но не постоянно.
@@ -91,6 +86,6 @@
 
 Как там принято: 
 
-[Подписывайтесь на канал кота, ставьте лайки!](https://t.me/ioda_kot_t)
+[Подписывайтесь на кота, ставьте лайки!](https://t.me/ioda_kot_t)
 
 ![](https://bafybeifmp2uogknvcza6arrcmdcwgmbt5l5eksf5vhj2xyda6m6lsz73k4.ipfs.flk-ipfs.xyz/13.jpeg)

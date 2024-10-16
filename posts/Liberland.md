@@ -17,7 +17,7 @@
 
 Я случайно увидела в сербском чатике про открытие офиса в Белграде и, не зная ничего, просто решила сходить на что-то новенькое. Вот видос оттуда:
 
-<video width="320" height="240" controls>
+<video controls>
   <source src="https://bafybeievsdwzvcs7a42o3cd7gvy6hjnp7awbecctv734axec6566jmpl7e.ipfs.flk-ipfs.xyz/2.mp4" type="video/mp4">
 </video>
 

@@ -2,7 +2,7 @@
 [date]: <> (2023/10/26)
 [title]: <> (Antalya и как я там зубы лечила)
 
-Анталия у меня началась с того, что меня не посадили на самолет. После семейного отдыха с родителями на Северном Кипре я собиралась заехать к друзьям в Сербию. Маршрут был: Эркан - Анталия - Скопье - Белград. Всё без багажа и по идее даже выхода из транзита не нужно было. Но я вышла в Анталии, проводить родителей (они собирались побыть тут ещё пару дней). И, честно, даже не обратила внимания можно ли было не выходить, ибо ТРСК формально, конечно страна отдельная, но логистика у нее только с Турцией, поэтому все сложно...
+Моя Анталия началась с того, что меня не посадили на самолет. После семейного отдыха с родителями на Северном Кипре я собиралась заехать к друзьям в Сербию. Маршрут был: Эркан - Анталия - Скопье - Белград. Всё без багажа и по идее даже выхода из транзита не нужно было. Но я вышла в Анталии, проводить родителей (они собирались побыть тут ещё пару дней). И, честно, даже не обратила внимания можно ли было не выходить, ибо ТРСК формально, конечно страна отдельная, но логистика у нее только с Турцией, поэтому все сложно...
 
 Но, в общем, я вышла и... дальше меня не посадили на следующий рейс :(
 
@@ -61,31 +61,31 @@
 
 Особо эпичных видов там нет, но полазить приятно: тропа не сильно хоженая, но и не совсем заброшенная. Уже на спуске с нее есть надпись на камне, что некий Али заботится о лесных тропинках, все для вашего комфорту. А еще у Али есть ресторан и он всегда рад вас накормить. Я бы с радостью к нему бы и пошла в это ресто, но где оно из надписи было непонятно. Так что благодарность была выражена только ментально.
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/9.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/9.jpeg)
 
 Вид из пещеры:
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/10.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/10.jpeg)
 
 День 2. Руины Aspendos. Добротно так отремонтированные руины. В амфитеатре даже проходят концерты, но не каждый день.
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/11.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/11.jpeg)
 
 Акведук:
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/12.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/12.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/13.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/13.jpeg)
 
 На следующий день решили еще раз сгонять в Goynuk Canyon. В этот раз более удачно. Фоточки по дороге к нему:
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/14.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/14.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/15.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/15.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/16.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/16.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/17.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/17.jpeg)
 
 Из самого каньона фоток нет, так как там было две опции: плыть на лодке и фоткать всё по сторонам или плыть в гидрике в воде температурой так градусов 15. Конечно выбор пал на второе, телефон остался на берегу
 
@@ -93,29 +93,29 @@
 
 Милые водопады выходного дня. Это место как раз для фоточег:
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/18.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/18.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/19.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/19.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/20.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/20.jpeg)
 
 #### Karain cave
 
 Пещера с очень странным рельефом и летучими мышами. Если бы я была сторонником какой-нибудь теории заговора, то сказала бы, что там что-то взорвалось, наделав кучу воронок в потолке
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/21.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/21.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/22.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/22.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/23.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/23.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/24.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/24.jpeg)
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/25.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/25.jpeg)
 
 Черепахен перебегает дорогу в тех краях:
 
-![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/26.jpeg)
+![](https://bafybeid7nd2wqy27rsakth36lpq3c5hoftl46iltvzu6sg6gjzb3gy5pku.ipfs.flk-ipfs.xyz/26.jpeg)
 
 ***
 

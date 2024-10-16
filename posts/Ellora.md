@@ -10,8 +10,6 @@ Entrance fee for foreigners 600₹, что в общем-то ни в какие
 
 20.019248, 75.179434
 
-[EZMapsConverter](https://t.me/ezmapsconverterbot)
-
 [Google Maps](https://www.google.com/maps?q=20.0192500,75.1794300) 
 
 [AppleMaps](https://maps.apple.com/place?ll=20.0192500%2C75.1794300) 
@@ -30,8 +28,6 @@ Entrance fee for foreigners 600₹, что в общем-то ни в какие
 
 20.020626, 75.181107
 
-[EZMapsConverter](https://t.me/ezmapsconverterbot) 
-
 [Google Maps](https://www.google.com/maps?q=20.0206300,75.1811100) 
 
 [AppleMaps](https://maps.apple.com/place?ll=20.0206300%2C75.1811100) 
@@ -49,8 +45,6 @@ Entrance fee for foreigners 600₹, что в общем-то ни в какие
 ### Заход со стороны джайнских темплов:
 
 20.035057, 75.171679
-
-[EZMapsConverter](https://t.me/ezmapsconverterbot) 
 
 [Google Maps](https://www.google.com/maps?q=20.0350600,75.1716800) 
 

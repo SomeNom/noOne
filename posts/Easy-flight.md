@@ -40,6 +40,4 @@
 
 ![](https://bafybeihi3ubz42b7crenyrwszjgazgtpx7pjp6tzgqpnxc5tvdquywl3ze.ipfs.flk-ipfs.xyz/5.jpeg)
 
-![](https://bafybeihi3ubz42b7crenyrwszjgazgtpx7pjp6tzgqpnxc5tvdquywl3ze.ipfs.flk-ipfs.xyz/6.jpeg)
-
 Родилась уже в Индии и у нее практически нет подшерстка. Такая вот индийская версия хаски.

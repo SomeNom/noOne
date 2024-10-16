@@ -25,7 +25,7 @@
 
 В ответ они присылают вот такую IDшку:
 
-![](https://bafybeievsdwzvcs7a42o3cd7gvy6hjnp7awbecctv734axec6566jmpl7e.ipfs.flk-ipfs.xyz/3.jpeg)
+![](https://bafybeievsdwzvcs7a42o3cd7gvy6hjnp7awbecctv734axec6566jmpl7e.ipfs.flk-ipfs.xyz/1.jpeg)
 
 В ноябре была ещё опция - отволонтерить в Либерленде 25 дней и можно получить паспорт. Не знаю останется ли она до весны, но я бы вписалась... Правда заезд пока туда только через Хорватию, однако президент сказал, что с визой они помогают.
 

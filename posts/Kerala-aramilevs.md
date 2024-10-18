@@ -55,6 +55,6 @@
 
 ![](https://bafybeigmm7bz2kq2a4pokx456tapklco2xkyd34ooajmfpnx7ynpaq4ohm.ipfs.flk-ipfs.xyz/20.jpg)
 
-Инста: [https://www.instagram.com/thearamilevs/](https://www.instagram.com/thearamilevs/)
+Их инста: [https://www.instagram.com/thearamilevs/](https://www.instagram.com/thearamilevs/)
 
 Пока там немного маршрутов, но сейчас ещё около 30+ человек пишут, каждый свой
